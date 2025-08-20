@@ -7,5 +7,5 @@ I am currently learning Multivariable Control Systems, Data Science, and Project
 
 ## Find me around the internet 🌎:
 - Learning in public and creating content on <a href="https://www.youtube.com/@athenkosihlonyane6029">Youtube</a> or <a href="">athenkosi.dev</a> 📹🌐
-- Sharing pictures on <a href="https://www.instagram.com/47h1_h10ny4n3">Instagram</a> 📸
+- Sharing pictures on <a href="">Instagram</a> 📸
 - Sharing updates on <a href="https://www.linkedin.com/in/athenkosi-hlonyane-892482194">LinkedIn</a> 💼
